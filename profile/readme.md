@@ -16,7 +16,7 @@ We are always on the lookout for talented individuals who share our vision and p
 
 ## Contact Us 📧
 
-Have any questions or ideas? Feel free to reach out to us via [Discord](https://discord.gg/NTFCVkTwf9) or send us an email at [contact@nexara.studio](mailto:contact@nexara.studio).
+Have any questions or ideas? Feel free to reach out to us via [Discord](https://discord.gg/NTFCVkTwf9) or send us an email at [???@???](mailto:???@???).
 
 ---
 
